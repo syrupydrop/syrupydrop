@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @syrupydrop
+- 👀 I’m interested in changing the world.
